@@ -1,1 +1,1 @@
-# my projekts
+# my projects
